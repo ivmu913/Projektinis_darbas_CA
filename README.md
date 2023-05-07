@@ -1,0 +1,2 @@
+# Projektinis_darbas_CA
+Projektinis_darbas_CA
